@@ -1,3 +1,3 @@
 2026-09-24
 
-<!-- Round 1 · 2026-09-24 18:06:24 · DYg0Ueai · cdettler@nc.rr.com, jimmy.bender@callawaygolf.com -->
+<!-- Round 2 · 2026-09-24 18:06:29 · KYVMh0EW · sostrander4@nycap.rr.com, jfaggioni@georgicagreen.com -->
